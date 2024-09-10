@@ -11,3 +11,6 @@ Meu nome é Duda Mazolini
   00001128311823sp@al.educacao.sp.gov.br
 
   @Dudamazolini
+
+
+![](https://media.tenor.com/4Wx81T1x7d0AAAAj/banana-cat-run.gif)
